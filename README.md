@@ -1,1 +1,1 @@
-# Bible-Joshua
+# Joshua
